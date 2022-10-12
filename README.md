@@ -1,1 +1,2 @@
 # odin-recipes2
+En side med en opskrift, eller de t første skridt mod at mestre en ny egenskab. Jeg vil stå fast og jeg vil gennemføre. Ikke for min egen skyld for min fremtige jegs skyld. Kun han kan se hvilket muligheder dette arbejder vil føre til. 
